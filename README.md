@@ -2,16 +2,6 @@
 
 **Cắt tóc nam Than Barber Shop**
 
-<!-- Google tag (gtag.js) -->
-<script async src="https://www.googletagmanager.com/gtag/js?id=G-0MKVHSNRPR"></script>
-<script>
-  window.dataLayer = window.dataLayer || [];
-  function gtag(){dataLayer.push(arguments);}
-  gtag('js', new Date());
-
-  gtag('config', 'G-0MKVHSNRPR');
-</script>
-
 
 Cắt Tóc Nam Than Barber là một trong những địa chỉ [cắt tóc nam đẹp](https://www.google.com/url?q=https%3A%2F%2Ftocnamdep.thanbarbershop.com%2F\&sa=D\&sntz=1\&usg=AOvVaw26ThLsKw64HriKBSDvyxrj) ở Quận Hai Bà Trưng, Hà Nội, tiệm rất rộng rãi, thoáng mát, có thể chứa một lượng khách khá lớn. Có thể nói, nơi đây giúp cho cánh đàn ông thay đổi mình tạo nên sự cuốn hút đầy nam tính. Ngoài ra, Tóc Nam Than Barber còn có những thợ tay nghề cao có thể tạo nên nhiều kiểu tóc ấn tượng cho phái mạnh giúp thu hút và tự tin hơn.
 
