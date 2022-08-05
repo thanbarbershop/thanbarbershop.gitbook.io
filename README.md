@@ -2,6 +2,7 @@
 
 **Cắt tóc nam Than Barber Shop**
 
+**``**
 
 Cắt Tóc Nam Than Barber là một trong những địa chỉ [cắt tóc nam đẹp](https://www.google.com/url?q=https%3A%2F%2Ftocnamdep.thanbarbershop.com%2F\&sa=D\&sntz=1\&usg=AOvVaw26ThLsKw64HriKBSDvyxrj) ở Quận Hai Bà Trưng, Hà Nội, tiệm rất rộng rãi, thoáng mát, có thể chứa một lượng khách khá lớn. Có thể nói, nơi đây giúp cho cánh đàn ông thay đổi mình tạo nên sự cuốn hút đầy nam tính. Ngoài ra, Tóc Nam Than Barber còn có những thợ tay nghề cao có thể tạo nên nhiều kiểu tóc ấn tượng cho phái mạnh giúp thu hút và tự tin hơn.
 
@@ -11,8 +12,6 @@ Trong thời gian học các học viên học nghề tóc nam chuyên nghiệp 
 
 \
 [![](https://thanbarbershop.github.io/images/1.jpg)](https://www.google.com/url?q=https%3A%2F%2Fwww.facebook.com%2FThanBarbershop%2Fphotos%2F%3Fref%3Dpage\_internal\&sa=D\&sntz=1\&usg=AOvVaw3uCKsyv061s4emO9eVjXQC)[![](https://thanbarbershop.github.io/images/2.jpg)](https://www.google.com/url?q=https%3A%2F%2Fwww.facebook.com%2FThanBarbershop%2Fphotos%2F%3Fref%3Dpage\_internal\&sa=D\&sntz=1\&usg=AOvVaw3uCKsyv061s4emO9eVjXQC)[![](https://thanbarbershop.github.io/images/3.jpg)](https://www.google.com/url?q=https%3A%2F%2Fwww.facebook.com%2FThanBarbershop%2Fphotos%2F%3Fref%3Dpage\_internal\&sa=D\&sntz=1\&usg=AOvVaw3uCKsyv061s4emO9eVjXQC)[![](https://thanbarbershop.github.io/images/4.jpg)](https://www.google.com/url?q=https%3A%2F%2Fwww.facebook.com%2FThanBarbershop%2Fphotos%2F%3Fref%3Dpage\_internal\&sa=D\&sntz=1\&usg=AOvVaw3uCKsyv061s4emO9eVjXQC)[![](https://thanbarbershop.github.io/images/5.jpg)](https://www.google.com/url?q=https%3A%2F%2Fwww.facebook.com%2FThanBarbershop%2Fphotos%2F%3Fref%3Dpage\_internal\&sa=D\&sntz=1\&usg=AOvVaw3uCKsyv061s4emO9eVjXQC)[![](https://thanbarbershop.github.io/images/6.jpg)](https://www.google.com/url?q=https%3A%2F%2Fwww.facebook.com%2FThanBarbershop%2Fphotos%2F%3Fref%3Dpage\_internal\&sa=D\&sntz=1\&usg=AOvVaw3uCKsyv061s4emO9eVjXQC)[![](https://thanbarbershop.github.io/images/7.jpg)](https://www.google.com/url?q=https%3A%2F%2Fwww.facebook.com%2FThanBarbershop%2Fphotos%2F%3Fref%3Dpage\_internal\&sa=D\&sntz=1\&usg=AOvVaw3uCKsyv061s4emO9eVjXQC)[![](https://thanbarbershop.github.io/images/8.jpg)](https://www.google.com/url?q=https%3A%2F%2Fwww.facebook.com%2FThanBarbershop%2Fphotos%2F%3Fref%3Dpage\_internal\&sa=D\&sntz=1\&usg=AOvVaw3uCKsyv061s4emO9eVjXQC)
-
-
 
 [**Than Barber Shop - Cắt Tóc Nam Đẹp**](https://www.thanbarbershop.com/home)
 
